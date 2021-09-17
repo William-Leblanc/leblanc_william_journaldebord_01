@@ -2,19 +2,28 @@
 ## Plan de présentation
 
 ### Présentation
-Parlez de vous. 
+Parlez de vous.
+Dans ma présentation je parle de:
+Se que je fais dans la vie a l'extérieur de l'école.
+Se qui me passione.
+Des artistes qui m'inspirent.
 
 ### Intérêts dans le domaine
-Parlez de vos intérêts en multimédia. 
+Je parle de mes intérret pour:
+Le sons et la musique
+La photographie
+Le visuel
 
 ### Emplois qui vous intéressent
-Nommez deux emplois.
+Producer/regiesseur son
+Employé chez Ubisoft
 
 ### Identification
-Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez pourquoi. 
+Rudy Mancuso, car j'adore ses projets et se qu'il fait.
+Ex; Synthesia, un projet multimedia.
 
 ### Dans 5 ans
-Où vous voyez-vous dans 5 ans? 
+Avec un travail stable, peu importe quel domaine. 
 
 ### Projets
-Expliquez un ou des projets que vous aimeriez faire. 
+Un projet que j'aurais aimé travaillé dessus est le Record World Guiness de spectacle de drone lumineux. 
